@@ -1,3 +1,2 @@
 //@Sunik
-я Xd./Sunik хз честно говоря что писать тут.
-Ну или же как многие меня знают Sunik#0519 из дискорда.
+Sunik#0519 ( if you want to contact me )
